@@ -1,4 +1,4 @@
-Hi, this is Nitin. 
+Hi, this is Nitin Upadhyay. 
 
 Education: pursuing BE:CSE (Computer Science Engineering) from Chandigarh University. 
 
